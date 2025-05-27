@@ -23,3 +23,6 @@ BUSINESS VIEW:
 1.Increasing and promoting the large and classic pizza as they are more preferred that the rest of the size and category.
 2.Marketing the least preferred pizza like “The Brie Carre Pizza, Mediterranean Pizza and The Spinach Pesto Pizza” by providing discounts and offers, also considering renewing the recipes of these pizzas.
 3.Increasing staffs on the most busiest hours and days to cater all customers efficiently, also considering adjustment in operational hours specifically on the slower periods by ensuring resources are allocated during peak hours.
+![image alt](![1000085177](https://github.com/user-attachments/assets/8ead2183-3d51-4527-81ec-05ebbb2764d0)
+
+
